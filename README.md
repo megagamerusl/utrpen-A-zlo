@@ -1,2 +1,0 @@
-# utrpen-A-zlo
-balright
